@@ -1,0 +1,8 @@
+
+Ividun is an example of void ecologies basically acting as contagious terraforming systems with microgravity environments being the main targets.  The main notice with void ecology spreaders is they spread to low gravity and micro-gravity worlds to use as a base while using radiation bathing flora on their outer layers to protect lithotrophic flora in their inner layers that act as a basic for the volumetric junglescapes.  Ividun is a bit more unique, in that it is an example of dwarf planet colonization.  These terraforming effects, while rapid spreading can be impressively slow with early void ecologies often being overwritten by later ones.  
+
+The violence and the invasion of the [[Custodians]] unwittingly let them spread a lot more, without the regulating the dominion somewhat did to limit their spread and later prospect space seems to just see it as a fact of life, despite the myriad of complications that arise from having to also deal with non-sapient colonizers all over the damned place.  The benefits of void ecologies arise however, in how they are free oxygen pumps and how they use ecologies to produce a wide range of resources that by design iterate and mutate faster than reasonably natural, with bioengineering that knows how to do logical mutations contextual to problems that arise.  Ividun is a cesspool of that, with kilometer tall trees being developed as a response to needing structures to bypass the gravity well.  The void ecologies are not holistically natural, as many gardeners are just hell bent on spreading void ecologies to other star systems and otherwise developing them at accelerated paces.  That is how so many could form across so many systems. 
+
+#VoidEcology 
+#aborted 
+#ProspectSpace 

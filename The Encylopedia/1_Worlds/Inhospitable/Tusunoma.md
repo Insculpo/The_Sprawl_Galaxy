@@ -1,0 +1,6 @@
+
+Tusunoma was a faculty that was a victim of the great shattering in millennia past, the debris rings that fill the system are monuments to the madness of the caretakers and their mutually assured destruction.  One finds some interesting aspects to Tusnoma's fragmented bits, one is how it is the earliest known example of de-extincted Fosskemians, they were made extinct again but the egg archives at and in many places around [[Sul Vopal]] were missed by the Caretakers and the Dominion just didn't want to mess with them when they weren't relocating them to various parts of their empire as archival exhibits.  The Fosskemians here revolted against their situation like [[Utanguis]] at times did, but with a violence and ferocity unmatched.  The kind of utopia the caretakers had made was deeply incompatible with what kind of species their creators were.  To exist in the cobalt was seen as worse than death, indeed the violence and destruction here predates even when the shattering obliterated the structure.  With signs of nuclear terrorism and just chaos waves in general.  Such chaos may be why the caretakers never bothers to bring Fosskemians back and why the Composers did.
+
+#aborted 
+#ProspectSpace 
+#ancient 

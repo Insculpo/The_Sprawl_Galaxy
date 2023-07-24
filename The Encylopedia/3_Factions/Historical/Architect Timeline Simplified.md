@@ -1,0 +1,25 @@
+
+ 
+The architect history trajectory is splittable 
+ 
+<Harlapan Wave occurred around 42500 BC>
+<Harlapan existence spreads around, the Harlapans would have beings from distant memories emerge at a lifeless, unassuming world around 1400 BC>
+(The rupture for reference: ~6500 BC)
+[Solitary Era] (18000 BC-4300 BC]
+Around 18000 BC the Glinnvyr are first known to have hit their modern forms, at that time the sprawl was at its height.  Humans were pre-agrarian a species with mere cave paintings at the same time.  Glinnvyr mostly just were solitary and go through constant cycles of ecological fiefdoms.  
+ 
+[prismatic era] (4300 BC - 1800 BC)
+<Harlapan Signal detected by the glinnvyr causes the shift of glinnvyr civilization towards space faring existence>
+The prismatic era was an era of radical change for the glinnvyr, as they became a more social species and rapidly advanced their civilization to a space faring civilization which also diffused, but at that point the prismatic continuities just lasted and the nomadic glinnvyr just spread out.  They would come across decrepit sprawl tech they just could only run from.  There were glinnvyr that sought the harlapan wave, there was other glinnvyr that just did their own thing.  
+ 
+[dreaming era] (1800 BC - 400 AD)
+The dreaming era was an era that occurred with the glinnvyr who didn't chase the Harlapa signals and instead consolidated to larger associations and continuities of convergent minds.  These were the dreaming ones.  Ovatar reigned in these times, the zikellites also were a deal.  Who cares.  The Aveterriat expansion happened during this era, the gaps of tech were interesting in that the Aveterriat did actually have FTL around 900 BC but were much more huddled and hidden a civilization, only going expansionist due to the Burning One's suicidal assault on their world.  The burning one let itself die to some level, it wanted the Aveterriat to know there is no hiding and to show the futility of it.  The message worked.  The Aveterriat expansion occurred.  The tensions and hostilities were very asymmetrical.
+ 
+[architectural era] (400 AD - 1900 AD)
+Internal conflict within the Aveterriat societies, the constructivist confederations and assemblies that formed in the era of mega scale works, flipping away from immaterial contemplatives and great minds of the prior eras for grand and overwhelming expressions of labor, force and melding in the vast ceremonial megastructures that were built in this era.  Yet it was also the era of incredible destruction between the crisis of the cracking, the protectorate wars and ultimately the ascension war.  It was the era the architects became the architects and gained the belief they were truly the next galactic civilization, the sprawl seemingly letting them form their hegemony across the galaxy.  One that reached the prospect spacers and the byproduct civilization of harlapans who tried to get their matter back from architects who collected such matter from the sprawl.  
+ 
+[custodian era] (1900 AD - Present day)
+The ascension war and its consequences in the times since, do not really have words to describe it.  The collective madness of the multiversal transcendentalist groups led to the forced virtualization maneuvers part of the ascension war as a massive conflict came from that.  The Glinnvyr had always believed themselves in hell.  They saw the sprawl as a civilization in perpetual limbo, unable to achieve higher.  Many believed that they could break out of the hell existence of this universe.  They sought to break into a multiverse.  However their methods were realized by other groups to just be virtual simulations.  Advanced beyond what prior eras had achieved, sure, but there was nothing that the observers could identify of their "realm" being a multiversal conduit as they so claimed.  Not like it mattered, their expansionist fervor to ascension as the final liberation from material suffering and the proclaimed ultimate efficiency of multidimensional metacrystal substrates was enough to give them an edge over other factions in the already advanced architect.  The transcendentalist groups did manage to basically forcibly mass upload tons of beings, including Aveterriat who were convinced they would basically get to reincarnate into infinite dimensions where infinite work will be done.  A paradise.  Their civilization would be basically forced into a deadlock by the Synchronics, Modulus and Vmiskii that stopped further expansion as the X-factor phenomena emerged.  The Custodians emerged as the dominant hegemony, a force that existed to basically have a motive that was deeply jarring to the societies who recall a transcendentalist movement gone runaway into a vast complex of computation worlds, vast planetary brains dreaming whole universes.  It was once considered impressive to simulate single galaxies.  They had created a virtual multiverse.  Dependent on infrastructure in this universe.  The cracks took such scale of annihilation as a promise.  They struck at the complexes for the glee of it.  The custodians struck back in retaliation.  
+
+#Architect 
+#timeline 

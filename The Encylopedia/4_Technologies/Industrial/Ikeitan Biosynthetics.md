@@ -1,0 +1,13 @@
+
+The [[Ikeitans]] have an internal ecology with crews and maintenace symbionts along with all matter of adaptive repair mechanisms in their hull should the outer plasma barriers fail to maintain against a barrage of enemy fire.  The etheric propulsion mechanisms are one of the things that have made their Ikeitans effectively most advanced civilization in terms of spaceship tech in prospect space, even if they do not have the vast amount of soft power, ties and operations of the Dozinist leviathans or the computational supremacy of the [[Metasyndicate]] (of which they trade computation with but it isn't enough to bridge the gap- the composer SIs are hard to overcome in their machinations.). Still, the Ikeitan fleet dominance that defines the [[Urzine Domain]] has created a somber society with the client species in multispecies arrangements working on a range of post-theological goals and pursuits. 
+
+A lot of warp travel and hyperspatial research gets done in the Domain, along with graser experiments and work on thermaplastic nano fabricators.  The biometallic nano forges are particularly developed in the [[Kudunum]] sector, one of the places living metals have created self-repairing and shifting cityscapes cultivated by polyp Ikeitans.  At least, the polyps who aren't in the fleets fighting the forces of [[Dozin]].  The client species who inhabit such sectors carry out activities in line with the Bulk approach of astrocratic postscarcity economics along with a countless array of symbionts.  Of which can be found just like anywhere else in prospect space sure, but the added advantages of the biometallic substrates endemic to the domain to create a distinctive brand of symbionts sharp and reflective to the touch. 
+
+Such refined symbionts are notable for how they can be utilized for void survival for long spans of time and being adaptive to the dreams and thoughts of the wearer in ways usually not attempted by other societies in [[Prospect Space]]. The quality standards the Ikeitans have worked to enforce also means parasite risks are much lower with their tech than with the sort of symbionts seen elsewhere in prospect space.  The qualitative approach to symbiont design has made Urzine domain symbionts sought after in other parts of prospect space despite the ideological opposition the Domain has against [[Dozinism]].  The constant arms race to maintain the tech edge even as others constantly are stealing from the Domain affects all sectors of ikeitan innovation and research habitats.  
+
+#biomecha 
+#ProspectSpace 
+#spaceship 
+#synthetic 
+#society 
+#ikeitan 

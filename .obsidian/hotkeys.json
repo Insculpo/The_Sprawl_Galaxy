@@ -1,0 +1,19 @@
+{
+  "copilot:add-custom-prompt": [
+    {
+      "modifiers": [
+        "Alt",
+        "Mod"
+      ],
+      "key": "I"
+    }
+  ],
+  "obisidian-note-linker:open-note-linker-note": [
+    {
+      "modifiers": [
+        "Mod"
+      ],
+      "key": "R"
+    }
+  ]
+}

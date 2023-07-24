@@ -1,0 +1,237 @@
+{
+  "main": {
+    "id": "2789282fba6ccfd0",
+    "type": "split",
+    "children": [
+      {
+        "id": "f06a788a0415310f",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "18a5e3ba111721e3",
+            "type": "leaf",
+            "state": {
+              "type": "empty",
+              "state": {}
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "ec6927610b7878ec",
+    "type": "split",
+    "children": [
+      {
+        "id": "9b5cac279625f93a",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "a2bfab56595be71a",
+            "type": "leaf",
+            "state": {
+              "type": "file-explorer",
+              "state": {
+                "sortOrder": "alphabetical"
+              }
+            }
+          },
+          {
+            "id": "4d650de9e77cbeca",
+            "type": "leaf",
+            "state": {
+              "type": "search",
+              "state": {
+                "query": "",
+                "matchingCase": false,
+                "explainSearch": false,
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabeticalReverse"
+              }
+            }
+          },
+          {
+            "id": "b9295900c809d371",
+            "type": "leaf",
+            "state": {
+              "type": "bookmarks",
+              "state": {}
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 389.5
+  },
+  "right": {
+    "id": "45e4bfaa385c5bc0",
+    "type": "split",
+    "children": [
+      {
+        "id": "067bef8b000013aa",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "8fb10a44d39bb0ab",
+            "type": "leaf",
+            "state": {
+              "type": "backlink",
+              "state": {
+                "file": "2023-07-23.md",
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical",
+                "showSearch": false,
+                "searchQuery": "",
+                "backlinkCollapsed": false,
+                "unlinkedCollapsed": true
+              }
+            }
+          },
+          {
+            "id": "f45fae82f94498c5",
+            "type": "leaf",
+            "state": {
+              "type": "outgoing-link",
+              "state": {
+                "file": "2023-07-23.md",
+                "linksCollapsed": false,
+                "unlinkedCollapsed": true
+              }
+            }
+          },
+          {
+            "id": "20000f9f0bb55cc2",
+            "type": "leaf",
+            "state": {
+              "type": "tag",
+              "state": {
+                "sortOrder": "frequency",
+                "useHierarchy": true
+              }
+            }
+          },
+          {
+            "id": "596ea46a2ecfaed8",
+            "type": "leaf",
+            "state": {
+              "type": "outline",
+              "state": {
+                "file": "2023-07-23.md"
+              }
+            }
+          },
+          {
+            "id": "4c3baa31e26f4b37",
+            "type": "leaf",
+            "state": {
+              "type": "BC-matrix",
+              "state": {}
+            }
+          },
+          {
+            "id": "275bae39fb8b8373",
+            "type": "leaf",
+            "state": {
+              "type": "BC-tree",
+              "state": {}
+            }
+          },
+          {
+            "id": "6ad9ed955702a341",
+            "type": "leaf",
+            "state": {
+              "type": "smart-connections-view",
+              "state": {}
+            }
+          },
+          {
+            "id": "8f32fdb572f5093e",
+            "type": "leaf",
+            "state": {
+              "type": "smart-connections-chat-view",
+              "state": {}
+            }
+          }
+        ],
+        "currentTab": 7
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300.5
+  },
+  "left-ribbon": {
+    "hiddenItems": {
+      "switcher:Open quick switcher": false,
+      "graph:Open graph view": false,
+      "canvas:Create new canvas": false,
+      "daily-notes:Open today's daily note": false,
+      "templates:Insert template": false,
+      "command-palette:Open command palette": false,
+      "obisidian-note-linker:Note Linker": false,
+      "copilot:Copilot Chat": false,
+      "brain:brAIn": false,
+      "obsidian-excalidraw-plugin:Create new drawing": false,
+      "breadcrumbs:Breadcrumbs Visualisation": false,
+      "markdown-importer:Open format converter": false,
+      "smart-random-note:Open Random Note from Search": false
+    }
+  },
+  "active": "a2bfab56595be71a",
+  "lastOpenFiles": [
+    "Sprawlverse_Setting_Bible/0_General/Architect Expanse.md",
+    "2023-07-23.md",
+    "8_LoadZone/Human.md",
+    "Sprawlverse_Setting_Bible/7_Misc/5-6 year old game concept.md",
+    "Sprawlverse_Setting_Bible/7_Misc/Assorted Harlapan Anomalies.md",
+    "Sprawlverse_Setting_Bible/7_Misc/Broken Futures.md",
+    "Sprawlverse_Setting_Bible/7_Misc/Discussing the Sprawl.md",
+    "Sprawlverse_Setting_Bible/7_Misc/Dreads.md",
+    "Sprawlverse_Setting_Bible/7_Misc/Fosskemian Overbabble.md",
+    "Sprawlverse_Setting_Bible/7_Misc/Human history, hyper form.md",
+    "Sprawlverse_Setting_Bible/7_Misc/Metasparche Jargon.md",
+    "Sprawlverse_Setting_Bible/7_Misc/Prospect spacer existence.md",
+    "Sprawlverse_Setting_Bible/7_Misc/Nomadic Exchange Thesis.md",
+    "Sprawlverse_Setting_Bible/7_Misc/More Conservative Tech than you think.md",
+    "Sprawlverse_Setting_Bible/7_Misc/Plot prompter.md",
+    "Sprawlverse_Setting_Bible/7_Misc/Severance-An Utanguis Outlook.md",
+    "Sprawlverse_Setting_Bible/7_Misc/The Dream of LW-A-181007.md",
+    "Sprawlverse_Setting_Bible/7_Misc/The Flow of the Architects.md",
+    "Sprawlverse_Setting_Bible/7_Misc/The mindset of the custodian.md",
+    "Sprawlverse_Setting_Bible/7_Misc/The Jiwarian Revolution.md",
+    "Sprawlverse_Setting_Bible/7_Misc/Thoughts on Metasyndicate Immigration.md",
+    "Sprawlverse_Setting_Bible/7_Misc/The terrible Scipio Story.md",
+    "Sprawlverse_Setting_Bible/7_Misc/The Rise and Fall of the Blue One.md",
+    "Sprawlverse_Setting_Bible/7_Misc/Whatever even is this.md",
+    "Sprawlverse_Setting_Bible/6_Stories/WSO Broadcast.md",
+    "Sprawlverse_Setting_Bible/6_Stories/Why the Fosskemian Rebirth.md",
+    "Sprawlverse_Setting_Bible/5_Characters/Historical FIgures",
+    "Sprawlverse_Setting_Bible/5_Characters",
+    "Sprawlverse_Setting_Bible/4_Technologies/Logistical/Spaceships",
+    "Sprawlverse_Setting_Bible/4_Technologies/Modifications",
+    "Sprawlverse_Setting_Bible/4_Technologies/Military",
+    "Sprawlverse_Setting_Bible/4_Technologies/Logistical",
+    "Sprawlverse_Setting_Bible/4_Technologies/Industrial",
+    "Sprawlverse_Setting_Bible/4_Technologies/General",
+    "Sprawlverse_Setting_Bible/4_Technologies/Computational",
+    "Sprawlverse_Setting_Bible/4_Technologies",
+    "8_LoadZone/Untitled.canvas",
+    "8_LoadZone/TheABigBoy.png",
+    "8_LoadZone/Stroid.png",
+    "8_LoadZone/Stationeer.png",
+    "8_LoadZone/ShadedCollector.png",
+    "8_LoadZone/RefinedYalilu.png",
+    "8_LoadZone/Redeemer_Placeholder.png",
+    "8_LoadZone/Politician.png",
+    "8_LoadZone/packMaster_Enhanced.png",
+    "8_LoadZone/OriginalSketch.jpg",
+    "8_LoadZone/LevelExample.png",
+    "8_LoadZone/Untitled.canvas",
+    "New folder/Untitled.canvas",
+    "Untitled.canvas"
+  ]
+}

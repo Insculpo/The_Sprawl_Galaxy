@@ -1,0 +1,7 @@
+
+The [[Veemer]] have a concept known as the Underthought.  The underthought is what happens with the lurking beings who exist in the abscess of creation.  It is a realm of sorts as much as it is a dreamed world.  It is where lost thoughts go to wander around, free of the thinkers who constrain them so they may pick up all matter of hidden insights into an issue by being untethered from the thinker's own limited imagination.  The underthought is an afterlife for ideas, one the Veemer try to summon lost thoughts from to gain novel insights into the problems of their times.  Such ritual sessions can look beyond cartoonish to an outsider, who instead of seeing the summoning ritual it is think it is just a really pretentious brainstorming session.  However when a Veemer does "gain" thoughts from this process, significant personality changes do get exhibited to a degree that it allows them to break out of a plateau or make breakthroughs in a problem they weren't before.  Their mindset also gets altered, in effect the veemer seem able to rapidly change one's sense of character and self as a theological measure if a wall is hit and the value of being what they currently were is deemed nil.  Such form of ego death for a Veemer hits especially hard as the Veemer do not really work as socially and are very reliant on cults of the self and personality in most cases.  Underthoughts are therefore not often carried out due to the value of self and personality in their societies.
+
+#ritual
+#belief_system 
+#[[Metasyndicate]] 
+#ProspectSpace 

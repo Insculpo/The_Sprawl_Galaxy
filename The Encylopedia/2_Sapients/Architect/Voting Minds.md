@@ -1,0 +1,16 @@
+
+Entity 1 "Voting Minds"
+
+The Voting Minds or VMs are one of the clients of the harlapans.  Their minds are multilateral minds that have conjectural outlooks.  Their homeworld of [[Vobun]] is a sulfuric one where teal skies are the norm as while it is a sulfuric world it has a relatively thin atmosphere, making flight hard.  Their world is incredibly radioactive, with an active magnetosphere that is visible thanks to its large aurora borealis cycles that can at times, nearly reach the equator.  This had been an issue in theory with silicon based electronics for the Voting World.  
+
+The Voting Minds are giant bipeds, with tree trunk sized legs and a "head" that is really just where their eyes and ears are while their mouth, brain and nose are where the chest is.  Their large arms distend from the upper cavity, from which two sets of arms that have prehensile branching appendages emerge, with the main "hands" being used more as a stump to walk with despite also being prehensile (and sometimes used when heavy objects are in order).  They're large, elephantine organisms on the whole and usually live in small clan units that vote.  They seemingly converge to larger herd units on the regular to build megalithic architectures despite the corrosives of their world being a hamper on their technology.  Their world is an ancient one, the melted layers of cultures bygone are built upon by newer cultures in the melted wonders of their world.  Etched in the dead like burial mounds, the written records described tens of millennia of archons and the eternal democracy they had attained.  World wide such voting systems are the norm, with deviations being more in competing/rival political units over territory and such or competing customs but the concept they have of democracy never was threatened as the elected archon system has been regarded as what intelligent beings do.  
+
+But the Voting Minds didn't seem to care much about the stars, being more preoccupied with their local issues and archons gossip than that.  Which made the Harlapan intrusion for them not as big a deal as it should have been.  They knew them to be more advanced people from the stars but didn't see the stars as their problem, more immediate issues at home.  Instead they made a tribute arrangement to keep the [[Harlapa]] from directly governing them regarded the Harlapa as more a thing which exists than as a real threat to their systems as it was so easy to negotiate a stable arrangement with them.  They send battle thralls to their Harlapan masters in exchange for protection and have a fair amount of autonomy in exchange for returning to the Harlapa with conscripts chosen with votes, meaning ostracization from their local world as the conscription system was seen as a useful way to get rid of unwanted members of a society .  
+
+That led to in their part of the galaxy a situation where they were pretty easy to subordinate as the voting minds have the harlapans and army of the ostracized who are pampered to serve.  The pampering is done to exploit their lack of belonging and alienation from their home, easily molded into frontline drone lords for the harlapans who tend to work behind multiple layers of command out of preservation of the scion.
+
+#harlapan 
+#sapient 
+#Architect 
+#sulfuric 
+#irradiated 

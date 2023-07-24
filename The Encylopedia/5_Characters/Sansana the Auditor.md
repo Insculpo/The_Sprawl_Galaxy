@@ -1,0 +1,7 @@
+
+Sansana is the current auditor of the metasyndicate and a popular voice of the [[Web of Sensory Overload]], in all its hyper immersion and sensory overload.  Sansana is not popular, with many in the [[Metasyndicate]] (though mainly Fosskemians as the [[Utanguis]] and [[Vopson]] usually see Sansana as just any fosskemian) seeing her behavior as too male in her wanting to build stuff and constant promotion of [[Jama]] like they're nest spawn.  Sansana claims she runs the Metasyndicate but everyone knows this to be bullshit as the composers run it, they even get more screen time on the WSO.  However she came to be auditor mainly because of her WSO presence and fixations on building stuff, something the denizens of the Metasyndicate really wanted after the chaos of the [[Akyamas]] scandal and her hostility towards basically everyone and everything not affiliated or part of the Metasyndicate is seen as deeply endearing, despite detractors decrying her as xenophobic ("I have company across all species, I am a denizen of the Metasyndicate first and a Prospect Spacer second, than potentially a [[Fosskemian]], all these songs of me being hostile to fellow prospect spacers has no coherency").  She later was found to have been ripping the arms off utanguis.  (Which is worse than ripping arms off humans, it's like ripping out parts of their mind).  Still she is Auditor despite the trouble that caused- if only because no one has yet to claim the bounties.
+
+#MetaDisputed 
+#ProspectSpace 
+#Fosskemian 
+#Metasyndicate 

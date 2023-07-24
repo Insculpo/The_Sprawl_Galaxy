@@ -1,0 +1,56 @@
+r<h2?The Silent Pact</h2>
+
+### Overview
+The  Silent Pact formed as a product of a genocidal attack by the custodians, built from the survivors of said attack with an advanced tech base they were able to transplant with themselves into the abyss of time and space.  Utilizing blink drive systems, they have managed to in the past century build a highly covert, highly decentralized empire with a massive network of puppet states across the known galaxy.  They are considered the invisible superpower by many due to their generally secretive culture and one-way model of recruitment- you join for life, can't defect and loyalty to the greater mission of retribution against the custodians is expected at all costs.
+
+### Beliefs
+
+The society of the Silent Pact has its cultural foundations in the mixed heritage of Ikirmite-[[Human]] cross species research initiatives often hidden from the public view (even if it was in practice an open secret).  This mixed heritage has created an incredibly strange mixture of individualist and reciprocal ethics which the civilian and military populations both follow.  They have also set up numerous colonies with nominal independence from the main organization, even if they tend to be client worlds and have also come to dominate various other worlds as client worlds at extreme risk, mainly the risk of being targeted by custodians.  Imperium society is extremely post-biological in many cases, primarily out of need due to mind uploaded people being far easier to evacuate than biological people, so many minds were uploaded and quite a few were fragmented.  From which the AI population has its origins.
+
+Their general system of beliefs are justice oriented, primarily with their enemy of the [[Custodians]] (who they are in an extremely asymmetric conflict with- as while the  Silent Pact has the advantage of an FTL system they can't track or keep up with, the Custodians pretty much are orders of magnitude superior in all other fields, a fact of which has made the  Silent Pact actively go out of its way to continue its ancient tradition of salvaging ancient technologies and doing incredibly tedious research under constant fear of the custodian drones cracking down.  
+
+Culturally they're very peculiar.  A total absence of species taboos is noticed, primarily due to the bulk of their kind being uploaded while the need for regimentation also led to a absence of marriage in the traditional sense, any so much courtships are very off the record at best and reproduction is usually done through gene pooling.  Reproduction through biology is seen as very backwards, though they don't seem to have any real sexual taboos either, as long as it isn't public anything could be going on behind the scenes.  In public they act very stoic however and formal action/behavior is universally expected at all times.  They also have an extremely fraternal attitude towards outsiders, demanding they must go through extremely violent, extremely intensive rituals in order to ensure conformity to the initiative of retribution.  The custodians must fall.
+
+### Structure
+
+The Silent Pact follows a decentralized fleet structure, with numerous outposts and research centers making up the bulk of their infrastructure while often having their civilian populations be associated clients they can levy for more skills and Minds.  The  Silent Pact is ran by the Prime Executive, who cooperates with a network of head agents, technocrats and admirals in a very regimental, authoritarian system whose worst excesses are limited by the lack of communication much of the imperium has to deal with due to how spread out they are.  This is by design- it prevents the Custodians from killing everyone.  More importantly, often you have multiple Prime Executives who default to the position due to need.  All Silent Pact factions tend to share the same common goal of custodian retribution or at the very least evasion of custodians due to the blink drives forcing them to such initiatives.  Those who think they can just have apathy about the Custodians tend to be weeded out or made to vanish.  There is relative leeway when it comes to Prospect Spacers but suspicions run deep enough indifference is the most diplomatic acceptable position in the pact.  
+
+The Prime Executives usually defer by appointment date (with deferring traditionally incentivized by making said Prime executive a deputy executive until further notice) and this is a well established tradition to the point where executives who defy it very often face mutiny in favor of the older executive.  The gerontocratic attitudes are based around a strong fear of younger generations losing touch with the directive and losing touch with why the Silent Pact must fight against the Custodians.  Hiders are looked down upon in most cases.  Their AI filled ships sometimes may have grave sites taken from the ruins of worlds where remains were intact, which is at times common due to the nature of the sterilizing agents custodians use usually just causing people to harmlessly drop dead intact (even if they end up so sterilized typical agents of rot are slow to manifest).  These bodies are kept in storage by their uploaded minds but are impossible to retrieve as the frying agents reduced the brain matter to mush and they're usually skeletons by than anyways.  The Minds tend to drag the dead bodies around as a reminder of what was stolen from them.
+
+### Demographics:
+The Silent Pact is made up of primarily human and [[Ikirmite]] uploads with a vast range of avatars.  Biological people are not as common, and often are extremely augmented and made cyborgs.  The avatar population is the bulk of the Silent Pact, with huge numbers and often with singular Minds controlling many entities across many fleets.  Though the deviations tend to be so high they hardly count as the same people in most cases.  The Silent Pact's more mechanical populace allows them to use blink drives efficiently, for they can devote huge amounts of energy to it for rapid jumps.    Those born in the Imperium tend to be full AIs or born from artificial wombs and from birth are heavily, heavily augmented and heavily indoctrinated into the system.  Even than there has been disillusioned youth issues from contradicting living experience.  
+
+
+Emergent minds (see: [[Virtual Minds]]) - 48%
+Human minds - 30%
+[[Ikirmite]] minds - 12%
+[[Stevik]] minds - 5%
+[[Parda]] minds - 1%
+Corporeal forms - 3% 
+And other - 1%
+Avatars aren't counted due to not being considered independent minds.  
+
+The total Imperium population is around 1.7 trillion total, much of which being AIs within spaceships stuffed in virtual spaces.  Still, over 55 billion biological Silent Pact affiliates and expanding exist.  These numbers seem vast, but compared to other civilizations are relatively small and much of this is just from the easy reproduction of AI and "redundant" people from the original 45 billion uploads and 750 million biological survivors (mainly due to how the custodians were slow on the draw with their attacks).  Numbers such as these on an interstellar scale are still rather small, just scattered across a several star systems.  Which in the galactic scale is but a speck.
+
+The greater Imperium, or the vast client network is all too massive a population base to even discuss here as they are societies in their own even under the clout of the Silent Pact and their meddling.
+
+
+### Technology
+
+The Silent Pact has a tech base oriented on one signature technology and various space-time distortion technologies they have extrapolated since from further experimentation and often deadly reverse engineering of advanced artifacts from trading and theft.  The architect in particular wants the Silent Pact to give them technology due to stealing some of theirs and making new tech from it.  Silent Pact tech has stagnated a bit, relative to the rapid innovations from their time as a research foundation, but still remains some of the most advanced of human or Ikirmite origin due to the Blink Drive development.  
+
+The [[Blink Drive]] has an article of its own.  While mind uploading and virtual networks with avatars is commonplace, the Silent Pact made the distinctive and rare step towards being almost entirely a civilization of virtualized inhabitant due to their AI filled ships having millions of minds in varied roles.  Many of these AIs are immortals who suffered the trauma of the genocide and rapidly multiplied among each other, much like the few biological survivors did and even with time the common fear of outsider threats from other part of the galaxy has given continued purpose to the Silent Pact as an organization for galactic deterrence against the plots of the Prospect Spacers or the intimidation of the Custodians.  
+
+They are very selective and exclusionary, with preference towards Plexus client sapients over anything not a Plexus client.  Fosskemians for instance are kept as far away from the pact as possible.  These computing systems are than hyperlinked using microscopic wormholes based on sprawl designs for mobile implants and on the fuzz oriented computing systems of the glinnvyr.  The AIs are able to self terminate at will, for they are not obligated to fulfill their end of the pact if they would rather die than continue with the greater initiative of security and retribution.
+
+Spatial warping has been used to achieve limited forms of stealth, often in conjunction with visible drones who relay data to the greater fleet and is able to tell if it has been compromised so if can self-destruct.  Using micro wormholes they are able to have eyes outside their warp bubbles, along with an escape hatch and liability.  
+
+THE 12TH TRIBUNAL
+
+The 12th Tribunal is the current Tribunal running the Silent Foundation and it is staffed with a cabal of unknown rulers who set the general agenda for the Silent Pact.  This 12th Tribunal is not elected, more or less because the Silent Foundation's origin as a scientific foundation turned polity with a structural system that has been described as a mixture of competitive Ikirmite contrasts and human party states where the foundation acts as a tight knight collection of associations competing for the favor of the tribunal and the common agenda of retribution for the evils which had befallen the Galaxy from the ancients- to loot their remains and make a better Galaxy is the whole agenda and the 12th tribunal has sought a path involving a network of puppet governments with the explicit intention in countering [[Utanguis]] expansion towards space controlled by the plexus ones, or really the human-Ikrimite codominion as they see it even as humans and the Ikrimites tend not to be terribly friendly among the lower level societies.  The Stevik have grown in population considerably in the 12th Tribunal as their impressive reverse engineering capabilities have grown in need.
+
+*Author's note: Wow look how much better this is with dodgy as hell Ikirmites rather than the golden rule fixated Tikali*
+
+#nomadic
+#postbiological 
+#plexus 

@@ -1,0 +1,4 @@
+Avidyudos was one of the larger dominion worlds in the past, it was compromised by as the cancer then wiped out by custodian exterminators tracking pack fleets to their location where they gravity bombed the world after slagging the surface was not enough to get at mantle digging bunkers the whandl-[[Utanguis]] coalition at the world had built.   The annihilation of avidyudos was early in the conflict when the goal was to wipe any potential resisting forces to the full extermination.  Later on when interstellar guerrila tactics using hyperspatial volumes of their own and exploiting their doctrine occurred they started just indiscriminate purging, but this proved untenable in of itself as by than they were dealing with literally trillions of ships across the volume at any given time with forces in the millions at most.
+
+#aborted 
+#ProspectSpace 

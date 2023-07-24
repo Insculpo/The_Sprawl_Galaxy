@@ -1,0 +1,31 @@
+
+We want to discuss the sprawl
+
+Is it too advanced for the setting? We are increasingly believing so. I get the point in many regards, that the sprawl has to be the elder civ
+
+But again
+
+The eons of time before us reveal the truth. Sprawl tech is incomprehensibly advanced. They had a galaxy of minds working together to solve problems beyond anything we ever have a grasp on. Even what exists of the Sprawl now is but a fragmented, weak remnant. We have no idea what happened in the rupture. The solipsism theory is cute, but it can't explain it. The current denizens were never in the loop either, they inherit the infrastructure but never could build it to the scale and magnitude. They may regionally alter the geography so to speak of the matrioshka worlds and installations we have encountered them but it has become clear they have long since fallen from being the builders of galactic civilization.
+
+The black box technologies they have, from energy-mass conversion to their mastery of wormhole technology.
+
+The sprawl is a deeply concerning entity. But their plight is clear enough, they became masters of so much of existence they thought themselves untouchable- only to succumb to unknown forces their own civilization took them inexorably towards. That led to the rupture. A strange attractor state that wiped them out, caused by the very way they structured galactic civilization. Their simulations failed to predict a whole layer of existence that we still lack much grasp on. They did manage a civilization far longer than any of us ever had- forty thousand years or so was the estimate. Far, far longer than anything humans ever built. And the timeline goes back even further.
+
+Waxing poetic about it does nothing for us in the present.
+
+For in the present the sprawl is but part of the galactic terrain. Their black box technologies a resource for scavenger societies that have spread in the face of the sprawl's present indifference. These scavengers concentrated in the outer sprawl, as that was where the bulk of the preserved galaxy existed. Sprawl Probes had explored every star system in the galaxy, but colonizing every star system was never done due to the preference to aggregate data and integrate civilizations only as they develop, which has mutated to non interaction short of them being at the door step. The Archivists divorce from the Ecumenical meant much of these probes and their data has become inaccessible to the modern sprawl who more or less show shocking ignorance of the interstellar civilizations that have emerged. They could look up quite a bit on us, things we don't even know of ourselves. But their distortions over the millennia on data leftover from the Archivists cutting off from the Sprawl have led them to have festering simulations that distort their image of what we are like. They thought humans climbed trees and practiced ritual rape, for this was what happened in a shocking share of their simulations consisting of modified sims that made humans an arboreal species like their primate relatives. The ritual rape was a thing human societies at times did practice- but it persisting to a postindustrial civilization was an invention of the simulations.
+
+The first humans to find the sprawl be far more ancient than you would have assumed. It was eighteen thousand years ago when sprawl probes reached sol, or about 15000 BC. Back when mammoths walked the earth with humans miring about an earth, part of a milankovitch cycle with the ice age at its tail end. They witnessed over time the development of humans to a state of agrarianism, but departed due to a recall protocol right before the dawn of Egyptian civilization. The before dawn watchers have no real bearing on human development we can tell, but the theories are there regardless. The enigma of the dawn watchers would not be the only instance. The second enigma of the Crab Nebula was staring at us. And the archivers still are observing all of us to this day, with tech too discrete to bother.
+
+When humans spread to the stars, the dawn watchers were long receded. Humans would find ancient, decrepit worlds littering the galaxy. Each a vast, endless labyrinth of automata and wormholes to distant parts of the galaxy. Visitors from distant parts of the galaxy would be accessed through those ancient junctures, the surviving parts of their decaying civilization. The denizens were indifferent to us going about the place- if their actions killed us, they did not care. If their actions benefitted us, they did not care. It is a disturbing feeling to wander the sprawl, where ancient giants still live doing as they did in prior millennia. We walk by their gaze, they know we are there. They just don't care. And how could they? Any attempt to bring harm to a sprawl world would be met with hyper spatial annihilation from many AU away. They manage to intercept relativistic and dissipate gamma ray strikes. Automatically. What could ever have brought harm to them? Do we even want to find out?
+
+This is where we find a grasp on existence
+
+There are countless questions about the sprawl
+
+The deep time questions have no actual answers
+
+For again we find ourselves at the mercy of the geological timespan. The modern galaxy's configuration is nonsensical without a context unreachable to us. For the causal pattern that forced the contrived universe we find ourselves in never could have naturally occurred. There is something else at play, everyone can sense it, but no one seems to have gotten any closer to truly knowing it. [[The Sprawl]] got the closest, their colonization patterns and modern observation obsessed archivists who are the de facto ruling force of the galaxy even as they are indifferent to the galactic scale suffering of their peers and upstart societies due to their morality being just interest in data collection and nothing else or so it appears (the paranoia their presence caused the phidians may have averted multiple interstellar wars between phidians and prospect spacers as is- a list of phidian xenocide atrocities have leaked due to prospect spacer spycraft that had to run around evading and dodging armies of hostile while streaming data they collected on the move due to Phidian sensor technology being so absurdly advanced as is)
+
+#StreamOfThought 
+#Sprawl 

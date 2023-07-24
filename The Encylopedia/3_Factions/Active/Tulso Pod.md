@@ -1,0 +1,4 @@
+
+An ancient, pretigous pod of [[Tikali]] whose legacy stems from pre-industrial Long Step society.    They are ancient but curious as to what else the galaxy offers, using a mix of spies and diplomats.  They have been stuck dealing with the [[Natvyr]] mess, minavan nemesis and the rogue tendrils for the past century but have managed to establish in recent history a surprising rapport with the [[Mediators]] (to the concern of their Minavan rivals).  The Tulso also have managed to keep interest in the [[March]] and ongoing troubles with the Natvyr and their monetary obsessions.  One one hand, they buy and buy some more. 
+
+The Tulso Pod has taken a generally 'no contact' approach with he Plexus, of which is in part due to how the more 'enlightened' Minavans have already moved ahead in making contact.  Meanwhile the Tulso Pod is more interested in consolidating local power and currying favors from the Prospect Spacers who they think have better military tech.

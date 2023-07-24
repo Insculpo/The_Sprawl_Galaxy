@@ -1,0 +1,6 @@
+The Exploding World is an anomalous world where the local ecology appears to be biosynthetic in origin due to being a biosphere filled with hydrazine producing algal organisms. They congregate in explosive cycles that have made the world a horrifying no-go world for most life as we know it. The local life cyclically spreads and than a local thermal maxima from a Milankovitch cycle causes regular explosive cascades that have lead to a chaotic terrain and geography. It also is somewhat radioactive. Research into the world is extremely dangerous as a result. One slight error in one's temperature gradient and whole kilometers go up in flames. The local life is adapted to survive the explosions, with spores and shell pods that are extremely blast resistant. It is all so seemingly designed that the presence of ancient automata was scanned for. It was found, using tech unfamiliar with any modern paradigm. Instead it appears to have been ancient [[Salfluer]] experiments abandoned in the wake of the Sprawl's rise. The Sprawl had quarantined the world and only after the rupture did the bracewells have total apathy to the world's fate- just as the sprawl became apathic to the galaxy's future after the rupture.
+
+#absurd 
+#plexus 
+#ancient 
+#anomaly 

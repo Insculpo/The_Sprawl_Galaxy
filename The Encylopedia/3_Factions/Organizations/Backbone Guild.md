@@ -1,0 +1,4 @@
+
+Spiner Boys
+
+Spiners are a class of automata associated with the civic found mostly as automated servants in luxury resorts of the Backbone Guild connected to a commanding module who is the main consort of the working network of machinery. The command types usually are humans in the Assembly region they permeate but there are peripheral commands, but those usually are handled by other associate chains. They have some units that mainly exist with the functionality of providing dances and babysitting children. As they are a family oriented system ran by residual Christians they're quite strict on how behavior is done within their chains, often to the frustration of the bulk of [[Grand Assembly]] citizens but they have quite the influence on worlds where Christian value systems have persisted even in the post humanist personality cult oriented Grand Assembly where the values of Trisemblance can be alienating to those used to the Trinity.

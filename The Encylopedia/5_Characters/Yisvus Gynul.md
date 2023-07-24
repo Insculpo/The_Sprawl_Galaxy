@@ -1,0 +1,10 @@
+
+The stated creator of this, Yisvus Gynul created what is known as the Gysmus Initiative.  Gynulist ecology had been a heavily layered project, as cracking the biology of multiple forms of alien life led to the extension of such tech to the basis which void ecologies would sprout.  They were to converge, as the dietified symbiosis.  The first step to bring [[Dozin]] to being.  Gynul had deep seated, dogmatic inclinations in all this as they kept trying to make such forces.  The great failure that was the [[bowels of dozin]] however, left Gynul's reputation in shatters as Gynul became a hermit in disgust at what it had created. They would however, be approached by the Vusidians once more as while the "bowels of dozin" had been on some level a failure, it did mutate and evolve into something that had its uses.  Even if it was as a recycler type void ecology.  They wanted Gynul to produce another one, the avatar of Dozin itself had beckoned Gynul.  
+
+Gynul wouldn't refuse this, so the Gysmus initiative was recreated a second team of close knit [[Utanguis]] and the fresh Utanguis from Dominion packs training their new iniates on the field of large scale bioengineering at the increasingly prestigious Jiwarian institutions that already have managed advancements in symbiont design and biomechanical appliances such as living walls and what was effectively a form of electro-chemical nanotechnology sought the megalomania of void ecologies.  And while Gynul's ambitions led to questionable results in the experimental system and the bowels of dozin, the way even a supposedly failed void ecology managed to find a new niche was proof that dozin's formation is a diverse, vast super being that only could be expanded upon.  And the glory to expand upon it drove the almost monomaniacal surge of biotechnology's development that the Vusidian Dominion had been built upon.  
+
+Yisvus and the Gynul pack would be regarded as a pioneer and one of the great Utanguis whose name has persisted over the past two millennia.
+
+#Utanguis 
+#historical 
+#ProspectSpace 

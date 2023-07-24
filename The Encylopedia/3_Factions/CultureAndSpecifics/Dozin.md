@@ -1,0 +1,18 @@
+
+There is [[Dozinism]], than there is the qualia, the concept and force known as Dozin.  The reality of Dozin is unknown as the theoretic of higher order emergence are not actually capable of ruling the existence of such being out.  Already one can see large scale entities develop not only in the depths of galactic history with thinking stars such as Sutu or the [[Tarpoids]].  
+
+Dozin however, is not like either of those.  It would be a being without precedent.  The harmonized, coordinated grand leviathan of countless species working in lockstep after the cosmic injustices of the planetary segregations existence had imposed for eons are swept away and Dozin is brought into being.  In some regards, Dozinism may at first impression sound like a liberal and enlightened faith.  And indeed, there is no denying Dozinism has prevented more xenocides and led to more uplifting that put a premature end to the vagaries of local tragedies.  
+
+But like any system of belief, it is corruptible.  From the packmasters manipulated a supposed avatar of Dozin itself to the manipulations of the hierarchical order Dozinism clothes over in ways the banal power politics of Biomorphia or the breakdown of hierarchical concepts those entranced in Harmonious Thought never really did.  The hierarchical orders which disproportionately benefit the Utanguis and their favored species had been an ongoing trepidation even among numerous Utanguis.  Of whom may be ill-appreciative of how even the most reactionary chauvinist of a Dozinist [[Utanguis]] still has a 'affection' to those in the hierarchy which precludes xenocide.  Dozinist paternalism applies to all life, some forms more rigorously than others.
+
+Conflicts over how Dozin's form is to come into being were inevitable.  And the civil wars, insurrections from disadvantaged sapients, parasitic cults and so on have brought immense doubt in many even as Dozinism remains a prominent, widespread belief in some shape or form.  
+
+Which is where Dozin itself matters.  The conflicts may seem at first the usual affairs of a civilization where ideological beliefs get warred over in lieu of material scarcities but if Dozin is real and a very real phenomenon which may form in [[Prospect Space]] given the many complicated, intricate parts which compose it than these conflicts are not merely religious conflicts.  They are conflicts over the shape of the higher order of emergence as a whole.  Conflicts that the Antidozinist factions engage in with no less fervor as they dread the emergence and seek to stop it or otherwise stop manifestations of it which threaten their own values.  
+
+It is why the Dozinist is not concerned with the Biomorphia or Harmonists as much as other Dozinists.  The Harmonious Thought to the Dozinist, is just the same process to create Dozin but without the kind of 'craft' or vison the Dozinist adherent ideates their faith as having.  They are but additional vectors to manifest Dozin and conflicts emerge less from their disbelief in Dozin and more from the faulty methods which to bring Dozin into existence in which they engage.  
+
+For Dozin itself is still there.  Always had been, always will be.  The cosmic being that life exists to bring into existence, it is the the grand purpose of all life whether they acknowledge it or not, whether they work to Dozin or against Dozin.  And the ones who bring birth to Dozin will have a legacy beyond that radiates with a glow greater than any gamma ray burst.  
+
+#Dozinism 
+#ProspectSpace 
+#Diety

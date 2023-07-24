@@ -1,0 +1,6 @@
+Olunumlum, the Oil Ring, is the name given to a particularly active tholin dense world akin to TItan and Enceladus at the same time.  Olunulum basically is like a massive tholin spray, with massive cryovulcanic activities and large seas of hydrocarbons that get ruptured out to the world's orbit.  The ring is a sub-ring that is thin, but dense.  The dynamo of Olunulum is the product of being the largest moon in a several moon system in orbit of Detrecto Mundi, the shrinking world.  Olunulum has a local ecology of threader organisms that exploit the upwards currents of the super volcano in their migratory patterns along wiith thin, stringy "floater" organisms with vines all orbiting around the super cryovulcano pump to collect the aquatic organisms that get periodically thrown out by the cryovulcano.  The same biosphere is sued across Olunulum, so the biomass of the sub-ice shell ocean became a huge resource exploited by the local wildlife.
+
+#biosphere 
+#hydrocarbon 
+#tundric 
+#biosphere 

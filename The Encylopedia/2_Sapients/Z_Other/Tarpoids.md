@@ -1,0 +1,5 @@
+
+Bionebulae that conferred their processes to planets and stars somehow, the sprawl evidently saw them as a danger that had to be wiped out, they mostly were but some survived in stars and planets.  Others did just end up as part of the sprawl, reduced to slaved clients.  They have manifested around the galaxy in strange and unpredictable places, [[Gavus]] and [[Stargi]] being two instances.  There are more.  The Burning Association communicated with a bright star that they managed to communicate with, there was more times a tarpoid residual being was dealt with.  Anomalous celestial objects like matapal, flatworld, [[Isa]] or the ice emperor are seemingly unconnected and just are distinct phenomena on their own systems.  Tarpoids operate on distinctive nodal units and how they seem to somehow impact the systems of local worlds to manifest their echo consciousness.  No one gets exactly the mechanics of it, tarpoids do not really use our timescales or logic.  They are evidently very ancient beings, predating the ecumenical even.  What impact they had on life in this galaxy is unclear.  
+
+#ancient 
+#megaorganism 

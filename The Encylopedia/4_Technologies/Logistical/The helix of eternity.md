@@ -1,0 +1,5 @@
+The helix of eternity is a topopolis that is if apparent sprawl origin or at least one of the fragments of the fallen galactic civilization that defines the galaxy. Topopoli were mostly annihilated in the rupture and beyond as far as we can tell. But the helix of eternity was in the right place and time to avoid such fate. Instead the helix of eternity managed to be an endless twilight river. One which you perpetually traverse, across an endless deep green swamp. The violet starry skies are simulation, the sun outside is a blaring heat. Some of the wormholes still function, of which lead you to places in completely different regions of our galaxy. The helix is mostly inaccessible, the strict automata here have made it so you have to slow boar many AU in a void drift to avoid their ire. The automata insistently call for "proper access" but call this drifting a "valid access".
+
+#megastructure 
+#MetaDisputed 
+#Sprawl 

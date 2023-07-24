@@ -1,0 +1,3 @@
+
+
+Jibari Aggregations is another major [[Metasyndicate]] distribution outlet, one with mercenary forces that it has on catalog for wide range of commissioned tasks that other clients may order.  The Jibari also happen to use [[Jama]] for the bureaucratic work as that was what was needed to be competitive against the [[Jatarsan Rainbow]], competition being intensive to the point actual mercenary skirmishes broke out between Jatarsan rainbow fanatics and Jibari security forces over some rather skeevy financial troubles that had been an aftershock from the Great [[Akyamas]] Scandal.  They have been alternating currencies and the use of Jibari credit to peg their currencies to, since the distrust of universal Metasyndicate credit has come to run deep.

@@ -1,0 +1,10 @@
+## Geminga Drive
+
+The Geminga Drive was developed towards the end of the Vanguard Age, in the 2400's and it was a revolution in warp drive travel as it created the [[Warp Relays]] in the process, and the relay ship system that would lead to the rise of the Plexus.  A Warp Relay launched drive acts as a 5x multiplier for warp travel, with more sensitivity to ambient dark matter and other unknown factors as the layers of reality started to unravel with said warp system.
+
+Warp travel tech improved from research at the pulsar colony of Geminga and the research done at Sirius B.  An accessible black hole became a holy grail as a result.  The Unicorn Venture became a crucial mission as black hole warp research became important and would be attained by the 2410’s (human activity by that point did reach a volume over 1200 ly in radius, but it was a loose colonization at best).  By 2425 10C spacecraft existed and this was used by the Blue One in its crack downs, the black hole tech warp vessels were dreaded and allowed for tons of destruction of new Atlantis insurrectionists, the Corvis elites who were massacred by the autolaws and so on until the 2450’s when the data on making them was leaked and widely adopted by the collapsed system the Vanguard was in an ongoing civil struggle to try to keep dominion over and failed to even with the AGI they had at hand, for said AGI blue one was limited logistically compared to the BCI, wisdom aggregators and their tones of experience dealing with tons of conflicts over the past century including their wars with the golden swarm, marauder factions and ancillary reflex algorithms used by military forces outside of Sol.  [[The Vanguard]] defense fleets were used on humans and Terran uplifts more than aliens.
+
+#Engineering 
+#FTL
+#plexus 
+#technology 

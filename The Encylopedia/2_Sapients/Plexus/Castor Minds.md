@@ -1,0 +1,5 @@
+
+Castor Class AI systems are Zeitgeist manifestation AIs that are comparable to Virtue systems but not entirely, as the Castors are like representative aggregations of the public will and idealized by those who consent to being linked to a Castor as the grand equalizer against the constant fears of hyper stratification from posthuman elites.  Mind those part of Castors often are transhuman/posthuman entities already.   When public unrest is high castor AIs can be very, very volatile as they coordinate mobs, subvert local enforcement systems and spread propaganda for activist causes.  That they are not under the control of a government is a byproduct of the warring factions period allowing stateless actors to prosper even with the resurgence of large organized polities like the [[Virtue Coalition]] or [[Grand Assembly]], of whom for all their advancements never were able to regain the magnitude of grasp on humanity that [[the vanguard]] once had.  
+
+#plexus 
+#synthetic 

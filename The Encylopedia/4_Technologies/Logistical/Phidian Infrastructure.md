@@ -1,0 +1,5 @@
+
+It is a pretty densely packed civ, there is mostly extremely repetitive and organized to maximize the amount of phidians in a given area. This has allowed for a lot of living issues to crop up especially due to food needs and the industrial complexes being on constant build mode due to the long deterrence the consulate has focused on. Phidian tech is not as good as [[Prospect Space]] tech in many areas but they make up for it in the sheer obscene amount of numbers they have grown over the millennia. The current estimate of their population is in the tens of quadrillions, on the order of population seen in the Architect and Prospect Space even if the growth isn't there. Their megastructure engineering is also fairly impressive, even if a lot of it is for mass stockpiling and facilitating the breeding orgies that occur at the behest of the cabal command to boost population. The [[Phidians]] also have to enforce their will across impressive amounts of Star stuff.
+
+#Phidian 
+#Infrastructure

@@ -1,0 +1,12 @@
+
+The Balch are a radically misotheistic society who do believe in gods literally and instead of attacking believers, believe that attacking the gods themselves is the solution.  Which means they aren’t as crusade-minded as the [[Urzine Domain]], but still very hostile to outside forces since they think the spiritual are agents of god’s will.  Be it [[Dozin]] itself or any countless other conceptions of god.  They have declared war on all gods and have ironically, the most fear of the gods and constant trepidation that the gods will smite them. 
+
+But they never have.  For that reason, the Balch believe they must act fast on their slaughter of the gods in the galaxy before they notice.  (The Balch believe the gods act slowly despite being simultaneously omniscient).  The Balch are extremely totalitarian, to a point that makes the Urzine look like a utopia.  The Balch are equality centric in mind, refusing to “populate” worlds with life since all life should be space life and so all life subject to the Balch live in and about their Ikeitian masters for /everything/.  Not simply as transportation like with the Urzine or Tatiki civilizations.  
+
+The Balch have developed great strides in “god-killers”, or weapons that they believe could kill a god.  They believe that if they can figure out how to rip holes in space that they can kill god since these gods hide in hyper dimensional realms.  This paranoia and strangely concise idea makes it seem like the Balch may really be affected by a technologically sophisticated entity beyond our current understanding of tech, but given that these claims exist more or less as propaganda by the “Learned” Elite (who hold all the power in a mafia-esque fashion and punish Ikeitians by having them eaten inside out if even their crew shows influence from these gods (and so, punishments are very brutal on even a civilian level since the Balch also are known to spend their free time imagining a variety of elaborate ways to murder the holy).
+
+Note:
+The Balch ambitions are usually said to be against [[Dozin]], but it must be stressed in the Dozinist cosmovision the abrahamic god is but our incomplete conception of Dozin.  
+
+#ikeitan 
+#system_state 

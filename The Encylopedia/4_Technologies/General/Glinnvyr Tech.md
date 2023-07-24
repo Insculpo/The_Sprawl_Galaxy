@@ -1,0 +1,29 @@
+
+[[Glinnvyr]] tech came from the [[Harlapa]] Wave, which basically compelled them to seek the stars. Their star cult was a product of the Harlapa wave. As was the united realms, which had the dream wars as disillusionment grew when all they found with the harlapa was... rock things that still had sentimental value but there was a large faction couldn't process meaning from it and so sought a different ontology to synchronize through- others had been so dismayed and disillusioned they became convinced the universe to be a punishment wrought upon them, that what they existed in was the manifestation of of a punitive existence. Such mindset led to suicidal activities. 
+
+The wave was just one of many acts of mockery of their existence. It did not help that the burner catastrophe lead to the [[Aveterriat]] expanding and spreading from their home world with extreme hostility to the glinnvyr. Not helped was how the glinnvyr cosmovision and Aveterriat cosmovision were in fundamental conflict due to the glinnvyr basically believing in the universe a prison and the Aveterriat believing in perpetual reincarnation in a single universe that just is one where one must labor as the purpose of life is endless work. (The Vmiskii-chromatist division comes from this mutual incompatibility and so intense even a mutual rival with the custodians did little to mend). The most optimistic of the groups were the Architects, who were a society that rejected ancient hostilities between the Aveterriat and glinnvyr.  But even they would end up a tragedy.
+
+**Actually discussing their tech**
+
+The Glinnvyr are a distortion oriented bunch, having discovered time dilation and all manner of special regions they create alien geometries with, the Glinnvyr like having large spaces.  Hydrogen based fusion rockets are standard for them and their FTL is able to leave 'trails' of distorted space that amplify the speed of anyone following the leader ship.  Glinnvyr tech in regards to diamond derived composite armor to counter lasers and metamorphic augmentations are also quite sophisticated.  Weapon wise they make use of relativistic molten sulfur particles and energy depletion arrays (which sap the energy of air and life all alike). 
+
+The Glinnvyr have engaged in megastructures creation at various times, primarily on low gravity worlds to make massive towers of non-tangible but instead ritual purpose.  Glinnvyr spacecraft are composite ships that consist of silicate and iron intermixed with a several thin non-kinetic energy deflecting alloys and magnetic barriers.  They are advanced,  but not too advanced as they need to be produced in large numbers and often make use of fractal missile systems.  Fractal missiles are basically multi-layered cluster missiles that make quite colorful patterns of death.  The Glinnvyr have capabilities in regards to bio augmenting other species in real time, an art form as they concern it and it is a legacy of the Dreamer where they are able to twist.  For some Glinnvyr will alter beings to their liking and Humans don't know how they do it- the [[Utanguis]] do but have yet to reveal anything on the subject. 
+
+The Glinnvyr use a series of automata known as the Foam who are extremely dumb, drone-like AIs that do as they need out of a sense of theocratic devotion to their purpose instilled by their creators.  They don't look like our machines,  being far more naturalistic in design with spindles and skin along with clay-like padding.  The Foam usually comes in huge swarms and whole worlds are populated in them that the Glinnvyr tend to like gardens and reap the Tech Foam were programmed to make periodically.
+
+The Glinnvyr are extremely mode based, or mood based, there is a vibe based way of morphisms’ to their whole existence they sense and the context they perceive the universe is extremely non-human; they really do seem to sense reality as a set of manifested forms that are distorted from their perfection and have a science that is as much superstition as it is science, but has a logic that is deductive and experimental enough that real discoveries have been made.  The Chronoturgists being the most notable example, figuring out how to distort the flow of time regionally to accelerate or slow down the relative time rate down to the scale of enters.
+
+The Glinnvyr have many forms but all follow the same baseline body plan, though some are much fatter and more integrated into the cream than others.
+
+The Cream is the electronic system of the Glinnvyr, roughly like a neural net but entirely artificial in material having a foamy/creamy texture to it.  It is likely nanomaterial, with tissue upon tissue and volumetric processing being how it works.  It is exceptionally good at integrating with organic forms, simply by contact and you can control it or it controls you.
+
+**New Edition Technology**
+
+The above tech list is ill descriptive of what the present day civilization of the [[Custodians]] actually is capable of.  It is where their civilization was over a thousand years ago (1600's AD to our perspective).  The above article also was created in a different time, back when a premium was put on species in a way it no longer is.  [[Architect Expanse]] technology is defined by the intersection of Aveterriat, Harlapan and Glinnvyr metropoles along with contributions from the secondary client sapients who were brought into the folds of the Architect Expanse willingly or not.  As a result a separate article was made which mostly focuses on the Custodian tech edges, as the factional novelties of the various non-Custodian sapients lack relevance due to the [[Custodians]] being the main interacting faction in the 2023 edition.
+
+See:
+[[Custodians]]
+
+#Glinnvyr 
+#technology 
+#outdated 

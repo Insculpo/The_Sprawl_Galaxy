@@ -1,0 +1,13 @@
+
+Apatursudos was for a thousand years a dominion complex of micro worlds rivaled only by the likes of [[Jiwar]] itself.  Apatursudos is a heavily integrated and colonized void ecology and the likely birth place of the Ikeitan Bioships.  It had developed rapidly due to the phosphorus rich K1-class Star that made it optimal for growing an elaborate void ecology and livable ecologies for the colonists who arrived later than the ecology that seeded it.  The colonists built a vast array, making use of bioships that they bioengineered at Apatursudos once, the design was popular for its ability to adapt rapidly and absurd durability/resilience to the elements.  It took on a life of itself own and the denizens of Apatursudos cultivated it, teaching it, they saw them as akin to being their rightful successors and inheritors of the [[Utanguis]] legacy just as they were inheritors of the Cobalt.  
+
+The [[Ikeitans]] of this time followed much more Dozinist outlooks and for a couple centuries they mostly were left unabated in their own ambitions and clout.  However, after the Pilot's Revolt it would be Apatursudos that got inexplicably targeted first despite the ikeitans being more widespread than in the past.  The ikeitans of the area would be culled by [[Dozin]]'s Will, an ancient enforcement arm of the immortal avatar itself that was fought against not just by the Ikeitans who already had started a widespread revolt but also local Apatursudos inhabitants who fought to the death, and indeed they were killed.  In the billions.  
+
+Apatursudos was reduced to a shell of its former self, the Ikeitan had lost their revolt but not completely- many retreated to distant reaches of space, to build a society free of the constrictions of Dozinist dogma.  And one that would one day aspire to defeat Dozin once and for all.  Apatursudos would naturally also be a place hit by the cancer, yet in the mass revolts that led to the dominion's downfall a century after the pilot's revolt the dominion's attacks on the world complex had already depopulated much of what was left after the pilot's revolt and what custodians did come around to the place barely saw much left to wipe out beyond some battle packs of Utanguis who had stationed themselves in the place.  
+
+(Note; Many Ikeitans did commit suicide as they got Dozin's will for them to no longer exist, many more however saw it as illegitimate and so fought against the judgement, in doing so defying Dozin and defying the Dominion itself)
+
+#aborted 
+#ProspectSpace 
+#megastructure 
+#historical 

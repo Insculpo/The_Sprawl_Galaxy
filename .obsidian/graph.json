@@ -1,0 +1,93 @@
+{
+  "collapse-filter": false,
+  "search": "",
+  "showTags": false,
+  "showAttachments": false,
+  "hideUnresolved": true,
+  "showOrphans": false,
+  "collapse-color-groups": false,
+  "colorGroups": [
+    {
+      "query": "tag:#Architect",
+      "color": {
+        "a": 1,
+        "rgb": 16756285
+      }
+    },
+    {
+      "query": "tag:#ProspectSpace",
+      "color": {
+        "a": 1,
+        "rgb": 9786361
+      }
+    },
+    {
+      "query": "tag:#plexus",
+      "color": {
+        "a": 1,
+        "rgb": 5413856
+      }
+    },
+    {
+      "query": "tag:#TheMurk",
+      "color": {
+        "a": 1,
+        "rgb": 11925429
+      }
+    },
+    {
+      "query": "tag:#Phidian",
+      "color": {
+        "a": 1,
+        "rgb": 5431473
+      }
+    },
+    {
+      "query": "tag:#Sprawl",
+      "color": {
+        "a": 1,
+        "rgb": 15882534
+      }
+    },
+    {
+      "query": "tag:#biosphere",
+      "color": {
+        "a": 1,
+        "rgb": 4251654
+      }
+    },
+    {
+      "query": "tag:#galacticFringe",
+      "color": {
+        "a": 1,
+        "rgb": 3684408
+      }
+    },
+    {
+      "query": "tag:#galacticCore",
+      "color": {
+        "a": 1,
+        "rgb": 16777215
+      }
+    },
+    {
+      "query": "tag:#ancient",
+      "color": {
+        "a": 1,
+        "rgb": 9337104
+      }
+    }
+  ],
+  "collapse-display": false,
+  "showArrow": false,
+  "textFadeMultiplier": 0,
+  "nodeSizeMultiplier": 1.46536458333333,
+  "lineSizeMultiplier": 0.240364583333333,
+  "collapse-forces": false,
+  "centerStrength": 0,
+  "repelStrength": 0,
+  "linkStrength": 0,
+  "linkDistance": 500,
+  "scale": 0.012369289845920178,
+  "close": false
+}

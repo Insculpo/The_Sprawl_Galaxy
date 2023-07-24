@@ -1,0 +1,7 @@
+
+ 
+The Elevating Opprobrium is a large cylindrical Bilethought megastructure that is a struggle road that seems one reduced in will to the great understanding as to why you deserve to die and only deserve to die.  And not only that but as [[Dozin]] so judged it, everyone in existence too should be purged by the [[Cancer]] as it was Dozin's will that the cancer be spread.  One who struggles up these roads often is bombardment into years of perception as the great revelation of our failed existence is laid bare and clear to a totality that makes what the bilethought does just.  This structure is laced in cancer and those it fails to bring to proper understanding of Dozin's judgment are cast into the cancer for their inability to understand being too terminal.  It is estimated this has killed around a couple hundred million and processed a hundred million more ever since the bilethought put it into operation centuries prior.  Attempts to destroy it by the purifiers have been limited mainly because of the hard to reach location and how deep into cancer-bilethought infested volumes it is.  Worse still is there are likely other structures of similar purposes.  Balch Urzine did attempt a direct strike at the structure, but it was a vanity expedition that didn't do much to really get rid of it.  Just scar it somewhat with anti-matter rift missiles that managed to get through the defense layers.
+
+#ProspectSpace 
+#megaorganism 
+#megastructure 

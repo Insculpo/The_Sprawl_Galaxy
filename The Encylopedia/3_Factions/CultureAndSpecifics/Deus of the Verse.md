@@ -1,0 +1,6 @@
+Deus of the Verse is a hypothetical entity entities in [[The Sprawl]] have used to explain the peculiar aspects of our universe’s development along with their own.  Less advanced societies have since picked it up as their own.  It is claimed that it could make our galaxy salient by simply moving through it, causing systemic bias towards higher sapience rates though forcing results in ways that look like statistical coincidences on first impression.  Deus of the Verse may have done this as just a byproduct of its activities or as part of some simulation.  No one knows.  However, it is far more likely the former.  It's. it even clear if Deus of the Verse exists or not because Deus of the Verse can't be empirically proven, being that Deus of the Verse exists in a hyper dimensional medium where it is able to manipulate existence simply by moving through it.  
+
+The entity appears as a feature of sprawl records and so has gained validity just due to that.  That a civilization as advanced as the old galactic order believed there to be something higher in the cosmology than themselves.  It is less a theology and more a hypothesis, as one isn't worshipping or trying to act in its favor.  It is more something that exists and you wouldn't worship it anymore than you would the concept of gravity.
+
+#Diety 
+#Sprawl 

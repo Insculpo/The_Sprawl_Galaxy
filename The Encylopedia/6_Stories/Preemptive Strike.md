@@ -1,0 +1,28 @@
+
+*It is an undisclosed span of time in the future. A fleet of vessels have been chosen by a distant bureaucrat to go to the lost cluster to strike at the sprawl preemptively. With a fleet numbering in the millions, the scale of the operation is unfathomable. This short vignette is an attempt to visualize a situation so as to show why it is unthinkable in the sprawlverse.*
+
+The relay carriers enter the lost system, strewn about it the decaying structures of the sprawl. The haunting thoughts of how many have died before are obscured by the objective of the admiral and their total control of such a vast fleet- to snuff out the remaining embers of a civilization that would render humanity but servile clients at best should it recover. Or so the logic goes.
+
+The admiral set their mass driver welding dreadnoughts at the core matryoshka world of the system, of which orbits a star surrounded by statites in orbital decay. Their main attack fleet remains en route, with hope that the RKMs of the mass drivers will crush the main world enough to make sweeping the rest of the system far easier. Intel on sprawl worlds remained limited, but it is known their kind in modern times is a weak, scattered kind who slowly die. However striking hard remains important- so as to destroy whatever caches of ancient tech they still have in possession. Recovery of that tech is of no interest to the admiral, that is to be the job of salvagers in other systems. So not their own department.
+
+Still the fleet approached the world as the RKMs barrel towards it at ever increasing velocities. But than something... stopped them.
+
+The immediate impulse of any rational actor at that point would be to retreat and warp away from the system as many light years as possible. But the admiral is not a rational actor. So they press on, issuing the threat that any desertions will be met with their own ship being remotely detonated with a kill signal. The human society here being just that oppressive. The stupidity of the kill signal itself will be clear soon.
+
+For a signal is emitted from the core world. Somehow it reached every vessel at a similar time, despite the astronomical units of distance between the admiral's spaceship asterisms. Operators are increasingly trying to subvert the comm systems of their vessel to break the possibility of the kill signal. However such morale loss is not too great as the fanatical core of the admiral's ships numbers in the hundreds of thousands.
+
+The signal initially simply was a message stating they have the right to leave the system. The admiral reminds the other vessels they do not have such right, but the signal is clearly from the world they wanted to strike at. The scattered denizens within the world have already took the time to retreat to lower world layers, not certain if the outer interception layers will hold. The initial hostility of the fleet made landing operations or surface detonations infeasible. Regardless the sprawl world has defense systems that have been activated by the RKM strike attempt, indeed the grave mistake was to think one could amass a WMD strike but not even try a Nicoli dyson beam, gravity manipulation arrays or strangelet terrorism (an option that is very hard to come by in all fairness). The world had other ways of handling these, but those may have at least managed to penetrate the outer layers.
+
+Still the fanatical core continued its approach to the world, with the sprawl signals beginning to show simulations of the fleet's fate. No victory, just death. These simulations streamed to all the ships in the fleet simultaneously just as the signal did. The sprawl world also autonomously reiterates their right to leave the system. Instead the admiral orders the launching of billions of nuclear missiles stored in huge bays full of ICBMs. A primitive but deadly means. The world was to be fried. Deadly fusion beams and casaba howitzers also began to be shot at the world as they approached, but as they did so they found their attacks always managed to somehow miss. All of a 21st century civilization's energy was spent a thousand times over just to break the matryoshka world and it proved insufficient because there was hidden external layers to the world itself, layers that bore the brunt, with the deepest penetrating nuclear weaponry at most irradiating a few districts with nothing but automata in them. The upper layers outside of that, proved to be almost entirely intact.
+
+Nuclear fallout was of little deal to the kind of beings that dwelled in the sprawl. The casaba howitzers managed to penetrate the hidden outer layers enough to get a couple hits in, but it proved to be nothing. The mass strike of nuclear bombardment was meant to flay the whole world's surface. It was at this point the admiral lost control as the fanatics tried to suicide ram the world in droves. The defense automata however had been wheeled out and they shot these ships before they could reach the destination. The slag and shrapnel got through, but the fragments were more manageable for the programmable matter systems than a huge ship hitting all at once. The sprawl had up to that point been heavily holding back, but now the sprawl attacked.
+
+The fleet would find itself surrounded by hyperspatial spaceships embedded in a secret hyperspatial grid around the world the fleet had waltzed into. The same one that coordinated the RKM interceptions.
+
+￼
+
+#MetaDisputed 
+#narrative 
+#example
+#human 
+#Sprawl 

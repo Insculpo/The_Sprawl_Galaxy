@@ -1,0 +1,7 @@
+
+
+
+Glibby Man is a silvery human with an exoskeletal exterior as a fair share do in the Plexus and the full body is one with additional bulb decor due to their interfacing with Ikimites.  Their body frame is very slim and rectangular, with their head even having been made into a cube as they preferred that look over the human head.  That move has alienated a considerable amount of humans in the Assembly but the Assembly's scale and vastness means box headed people roam the streets anyways.  There is not much that can be said about them as they're insular and often found just repetitiously wandering the foyers of Tiam's Artificial Bay on the world of [[Drusis]] doing the same 3 tasks of resetting the furniture, checking up on the [[Ikirmite]] guests and transferring data about the Questioning Ones to the Editing Syndicate against their consent as there can be no consent on the matter, the dirtiness would be too much for the minds of those in charge and the Glibby Man obeys in exchange for not being treated as bad as they would normally be.  Such Quid Pro Quo is unsettlingly common in the [[Grand Assembly]] despite all the positives of cheap/free cybernetics and the welfare system being able to support a cyborg as unproductive/inefficient as the Glibby Man without question.  What a time to be alive!
+
+#absurd 
+#human 
